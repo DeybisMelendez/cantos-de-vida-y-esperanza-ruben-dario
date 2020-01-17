@@ -1,0 +1,13 @@
+# Prefacio
+
+Podría repetir aquí más de un concepto de las palabras liminares de Prosas profanas. Mi respeto por la aristocracia del pensamiento, por la nobleza del Arte, siempre es el mismo. Mi antiguo aborrecimiento a la mediocridad, a la mulatez intelectual, a la chatura estética, apenas si se aminora hoy con una razonada indiferencia.
+
+El movimiento de libertad que me tocó iniciar en América se propagó hasta España, y tanto aquí como allá el triunfo está logrado. Aunque respecto a la técnica tuviese demasiado que decir en el país en donde la expresión poética está anquilosada a punto de que la momificación del ritmo ha llegado a ser un artículo de fe, no haré sino una corta advertencia. En todos los países cultos de Europa se ha usado del exámetro absolutamente clásico sin que la mayoría letrada y sobre todo la minoría leída se asustasen de semejante manera de cantar. En Italia ha mucho tiempo, sin citar antiguos, que Carducci ha autorizado los exámetros; en inglés, no me atrevería casi a indicar, por respeto a la cultura de mis lectores, que la Evangelina de Longfellow está en los mismos versos en que Horacio dijo sus mejores pensares. En cuanto al verso libre moderno... ¿no es verdaderamente singular que en esta tierra de Quevedos y de Góngoras los únicos innovadores del instrumento lírico, los únicos libertadores del ritmo, hayan sido los poetas del Madrid Cómico y los libretistas del género chico?
+
+Hago esta advertencia porque la forma es lo que primeramente toca a las muchedumbres. Yo no soy un poeta para muchedumbres. Pero sé que indefectiblemente tengo que ir a ellas.
+
+Cuando dije que mi poesía era «mía, en mí» sostuve la primera condición de mi existir, sin pretensión ninguna de causar sectarismo en mente o voluntad ajena, y en un intenso amor a lo absoluto de la belleza.
+
+Al seguir la vida que Dios me ha concedido tener, he buscado expresarme lo más noble y altamente en mi comprensión; voy diciendo mi verso con una modestia tan orgullosa que solamente las espigas comprenden, y cultivo, entre otras flores, una rosa rosada, concreción de alba, capullo de porvenir, entre el bullicio de la literatura.
+
+Si en estos cantos hay política, es porque aparece universal. Y si encontráis versos a un presidente, es porque son un clamor continental. Mañana podremos ser yanquis (y es lo más probable); de todas maneras, mi protesta queda escrita sobre las alas de los inmaculados cisnes, tan ilustres como Júpiter. 
